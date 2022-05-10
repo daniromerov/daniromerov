@@ -1,4 +1,4 @@
-### Hi, I'm Daniela 👋
+### Hi, I'm Daniela 
 
 - 👩🏻‍💻 I’m currently working as a web designer and UX/UI designer.
 - 🤟🏻 I’m looking to collaborate on technology and design projects ...
